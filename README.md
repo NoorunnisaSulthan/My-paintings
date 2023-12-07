@@ -1,4 +1,4 @@
-Greetings fellow tech and art enthusiasts! 🌿🎨 Embarking on this visual journey, I am delighted to unveil my passion for acrylic painting, where the canvas becomes a gateway to the sublime beauty of nature and the untamed realms of abstract expression. For me, painting is not merely a hobby; it's a poetic dance with colors and forms, an exploration of the intricate connections between the natural world and the limitless realms of abstraction. 
+Greetings fellow tech and art enthusiasts! 🌿🎨 I am delighted to unveil my passion for acrylic painting, where the canvas becomes a gateway to the beauty of nature and the  realms of abstract expression. For me, painting is not merely a hobby; it's a poetic dance with colors and forms, an exploration of the connections between the natural world and the limitless realms of abstraction. 
 
 ## Do note the attachments are huge, to view them clearly zoom out to 50%
 
